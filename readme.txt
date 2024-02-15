@@ -1,0 +1,1 @@
+Venturox website - @. @Rstogi college. brjndra  2. New email Id with DP. 3. Durgesh headphone 4. Client meeting on Sunday 5. News App update @Rstogi college. brjndra  5. Digital Marketing 6. Cost calculation perday/perhour @. @Rstogi college. brjndra 7. Git Configuration @. 8. Maintain product Catalogue @. 9. Himanshu-Durgesh interaction @Rstogi college. brjndra
